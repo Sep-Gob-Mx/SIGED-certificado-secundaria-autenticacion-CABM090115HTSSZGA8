@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-CABM090115HTSSZGA8
+CABM090115HTSSZGA8
